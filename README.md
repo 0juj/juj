@@ -2,6 +2,6 @@
 
 
 
-![](link)https://media.tenor.com/MQCDOGVNWAcAAAAj/jujutsu-kaisen-geto-suguru-stairs.gif
+![](https://media.tenor.com/MQCDOGVNWAcAAAAj/jujutsu-kaisen-geto-suguru-stairs.gif)
 
-![](link)https://media.tenor.com/ZvCOL44xDQIAAAAi/nezuko-kny.gif
+![](https://media.tenor.com/ZvCOL44xDQIAAAAi/nezuko-kny.gif)
